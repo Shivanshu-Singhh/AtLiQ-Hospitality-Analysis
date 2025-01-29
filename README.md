@@ -53,6 +53,8 @@ Delhi leads in both occupancy and customer ratings, followed by Bengaluru, Hyder
 
 Elite rooms are the most booked but also have the highest cancellation rate.
 
+Video Presentation link :- https://www.linkedin.com/feed/update/urn:li:activity:7290248568399945729/
+
 AtliQ Grands lost ₹299 million due to cancellations.
 
 Atliq Exotica outperformed other properties, earning ₹320 million, with a 3.62 rating and 57% occupancy.
